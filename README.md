@@ -34,5 +34,5 @@ I'm currently actively exploring cybersecurity, dApps, and back-end services.
 
 ### Reach me at
 - <a href="https://www.instagram.com/ia.intan._?igsh=bW5yYnZlamE1Ymtu">Instagram</a>
-- @ia.intan._
+- idayuintan23@gmail.com
 - <a href="https://google.com">idayuintan</a>
